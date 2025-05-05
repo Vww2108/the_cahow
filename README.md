@@ -1,1 +1,1 @@
-# the_cahow
+# webcomic_revolution
